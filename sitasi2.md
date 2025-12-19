@@ -66,7 +66,6 @@ C
 D
  * Damanik, D. A. (2019). Kekerasan dalam dunia pendidikan: Tinjauan sosiologi pendidikan. Jurnal Sosiologi Nusantara, 5(1), 77–90.
  * Darsi, D., & Mitra, O. (2022). Pedoman Etika dan Adab Menuntut Ilmu dalam Islam. IAIN Kerinci.
- * Detik.com (Various articles: Gus Miftah, Perusakan Rumah Doa, Siswa Garut) -> PISAHIN INI JADI 3 BARIS YA!
  * DetikJatim. (2025). Pergaulan Bebas Bikin Kasus HIV di Kota Malang Terus Meningkat.
  * Detikjatim. (2024). Pengasuh Ponpes di Lumajang yang Nikahi Anak Orang Tanpa Izin Ditahan.
  * DetikNews. (2024). Buntut viral guru tampar murid.
