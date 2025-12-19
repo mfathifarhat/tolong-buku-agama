@@ -7,7 +7,7 @@ A
  * Afiatin, T., Subandi, M. A., & Reginasari, A. (2023). The dynamics of flourishing Indonesian Muslim families: An Interpretative Phenomenological Analysis. Psikohumaniora, 8(1), 1–18.
  * Agil Trisetiawan Putra. (2025, October). Mahasiswi Tewas Usai Lompat Dari Lantai 5, Pernah Coba Bundir Tapi Gagal. Detik Kalimantan.
  * Ahmad, S. (2023). Penerapan Restorative Justice dalam Penanganan Bullying Berbasis Nilai Islam. Jurnal Hukum Pendidikan, 15(1).
- * Ahmad, W. H. S. W., Bakar, R. A., Ismail, C. Z., & Kontemporari, A. P. I. (2021). Konsep Al-Ihsan dalam Al-Quran Serta Penghayatan dalam Aktiviti Muamalah. ABOUT I-MAC.
+ * Ahmad, W. H. S. W., Bakar, R. A., Ismail, C. Z., & Kontemporari, A. P. I. (2021). Konsep Al-Ihsan dalam Al-Quran Serta Penghayatan dalam Aktiviti Muamalah.
  * Ahmad Zubaidi, & Muhammad Azkar. (2025). Jerat Riba di Era Digital: Analisis Pinjaman Online Ilegal dalam Perspektif Ekonomi Islam. JURNAL PENDIDIKAN IPS, 15(3), 1154–1163.
  * Akdogan, C. (2006). Scientific progress in Muslim countries. Nature Publishing Group.
  * Al-Attas, S. M. N. (1993). Islam and Secularism. Kuala Lumpur: ISTAC.
