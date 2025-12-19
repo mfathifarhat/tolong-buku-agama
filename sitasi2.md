@@ -132,14 +132,12 @@ K
  * Ketaatan, P., dkk. (2015). PENGARUH KETAATAN BERIBADAH TERHADAP KESEHATAN MENTAL MAHASISWA. JURNAL ILMU DAKWAH, 35(1), 40–42.
  * Khumairoh, A. (2024). Mengenal Tujuan dan Tingkatan 5 Maqashid Syariah. Hukum Online.
  * Komnas Perempuan. (2024). CATAHU – Catatan Tahunan Kekerasan Terhadap Perempuan di Indonesia.
- * Kompas.com (Various articles: Bom SMAN 72, Flexing Mario Dandy, Joseph Paul Zhang, Kasus Al-Minhaj, Pernikahan Anak Lombok) -> PISAHIN INI JADI 5 BARIS YA!
  * Kumparan. (2019). Dianggap Beda Mazhab, Pengajian Ustaz Firanda di Aceh Dibubarkan.
  * Kuntowijoyo. (2006). Islam Sebagai Ilmu: Epistemologi, Metodologi, dan Etika. Yogyakarta: Tiara Wacana.
  * Kusumawardani, N., dkk. (2023). Fenomena Buzzer dan Hoax Pada Sosial Media. Jurnal KOMUNIKASI UTA’45 Jakarta.
 L-M
  * Leathers, H., & Scarlett, M. (2022). Theoretical perspectives of parental influence on adolescent cyber behaviour. Heliyon, 8(5).
  * Lestari, A. N., & Syaukani, M. (2022). Peran Media Sosial dan Self-Disclosure dalam Konflik Rumah Tangga Generasi Milenial. Psikoislamika.
- * Liputan6.com (Various articles: Aliran Kartu Surga, Perbedaan Pendapat Islam) -> PISAHIN INI JADI 2 BARIS!
  * Ludigdo, U. (2021). Negative evaluations of national ethics and its impact on radicalism. SAGE Open, 11.
  * Madjid, N. (1992). Islam, kemodernan, dan keindonesiaan. Paramadina.
  * Mahadewi, E. P., dkk. (2025). Risiko Penyimpangan Seksual & Dampak Sosial-Lingkungan pada Pemuda. International Journal of Health & Psychology.
